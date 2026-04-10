@@ -1,3 +1,1 @@
-# art
-my art!!! :)
-![Architecture Diagram](https://www.pinterest.com/pin/1032309545858438798/)
+I can't figure Github out idk how to add pictures help.... :'(
